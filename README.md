@@ -1,1 +1,0 @@
-# nagachinta.github.io
